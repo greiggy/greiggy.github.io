@@ -7,4 +7,4 @@ published: false
 
 - Thursday, March 22 15:45 Celebration of life of FRANK LESLEY MILES, Hereford Crematorium (Bayley's)
 
-- Tuesday, March 27 14:00 Leominister Cemetery Chapel for celebration of life and interrment of EDITH CLARK (Bayley's)
+- Tuesday, March 27 14:00 Leominster Cemetery Chapel for celebration of life and interrment of EDITH CLARK (Bayley's)
